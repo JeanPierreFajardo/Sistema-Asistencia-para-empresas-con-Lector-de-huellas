@@ -34,6 +34,6 @@ Ejecuta y comienza a registrar asistencia fácilmente.
 Si deseas adquirir el sistema personalizado, necesitas ayuda o soporte, contáctame:
 
 📧 jeanpierrefajardo97@gmail.com
-📱 WhatsApp: +51 930 113 595 (coloca tu número si deseas)
+📱 WhatsApp: +51 977134718
 
 ⭐ Dale una estrella si te fue útil, ¡y comparte!
